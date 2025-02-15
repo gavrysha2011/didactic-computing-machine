@@ -1,1 +1,1 @@
-птп# didactic-computing-machine
+тптп# didactic-computing-machine
